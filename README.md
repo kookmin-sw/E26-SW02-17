@@ -1,3 +1,4 @@
+<img width="1055" height="1491" alt="poster" src="https://github.com/user-attachments/assets/20780e10-766a-4642-a98a-a21c145102d4" />
 # Welcome to E26-SW02-17
 
 ## 🎯 팀 슬로건
